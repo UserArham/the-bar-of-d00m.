@@ -39,3 +39,15 @@
 
 ## BRO. STOP BULLYING ENDLESSFANMUSIC! I AM SAYING IT CLEAR! STOP BULLYING ENDLESSFANMUSIC!
 
+<img width="969" height="767" alt="Screenshot 2026-10-28 6 23 59 PM" src="https://github.com/user-attachments/assets/e9dd509b-af39-443c-87a0-b40c08735a6a" /> 
+
+
+
+
+
+
+
+
+
+
+and yes.
