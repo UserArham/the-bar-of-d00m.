@@ -28,4 +28,14 @@
 
 <img width="969" height="767" alt="Screenshot 2026-10-28 6 23 59 PM" src="https://github.com/user-attachments/assets/e9dd509b-af39-443c-87a0-b40c08735a6a" />
 
+<img width="677" height="674" alt="Screenshot 2026-11-05 1 16 11 PM" src="https://github.com/user-attachments/assets/ce593d8e-bf5a-40fc-84a0-249a76afdbbf" />
+<img width="661" height="702" alt="Screenshot 2026-11-05 1 16 31 PM" src="https://github.com/user-attachments/assets/fe670bc1-30f2-47b2-90d9-dcd5e8154a56" />
+<img width="661" height="702" alt="Screenshot 2026-11-05 1 16 38 PM" src="https://github.com/user-attachments/assets/9c2784cd-8d74-4745-b683-3a69c7694289" />
+
+
+
+<img width="625" height="145" alt="Screenshot 2026-11-05 1 16 51 PM" src="https://github.com/user-attachments/assets/1b2080a3-a136-4917-b055-892889215496" />
+
+
+## BRO. STOP BULLYING ENDLESSFANMUSIC! I AM SAYING IT CLEAR! STOP BULLYING ENDLESSFANMUSIC!
 
