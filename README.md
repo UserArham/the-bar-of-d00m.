@@ -19,6 +19,9 @@ We block accounts for talking about suicide or self harm because we don’t beli
 
 Before we process your appeal, we wanted to ensure you are safe and not currently going through a difficult time. Please let us know. 
 ​
+
+
+
 Alex,
 Scratch Team 
 
