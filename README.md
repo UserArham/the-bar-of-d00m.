@@ -25,9 +25,8 @@ Scratch Team
 
 - November 4, 2026
 
-# Latest Memes for the Week:
+# Latest Memes for this moment:
 
 
-<img width="992" height="768" alt="image" src="https://u.cubeupload.com/ieatcoffee/eTvUJ6.png" />
-
+<img width="800" height="450" alt="ZcjBmmEiUTosxbG-800x450-noPad" src="https://github.com/user-attachments/assets/83b8e88d-ced3-4f1f-b349-2da2d2c17df0" />
 
