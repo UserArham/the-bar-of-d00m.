@@ -20,9 +20,14 @@ We block accounts for talking about suicide or self harm because we don’t beli
 Before we process your appeal, we wanted to ensure you are safe and not currently going through a difficult time. Please let us know. 
 ​
 
-
-
 Alex,
 Scratch Team 
 
 - November 4, 2026
+
+# Latest Memes for the Week:
+
+
+<img width="992" height="768" alt="image" src="https://u.cubeupload.com/ieatcoffee/eTvUJ6.png" />
+
+
