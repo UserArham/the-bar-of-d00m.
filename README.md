@@ -32,3 +32,12 @@ Scratch Team
 
 (I got sent to the Wayback Machine like 2 weeks is 20 years.)
 
+<img width="1364" height="764" alt="image" src="https://github.com/user-attachments/assets/a4812c02-449d-4128-8ff9-ca9e65e0c9b0" />
+
+
+
+<img width="1364" height="764" alt="image" src="https://github.com/user-attachments/assets/c952b3c1-1e2e-496d-8efe-c0c39c9423b8" />
+
+(that's fucking false)
+
+
