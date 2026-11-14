@@ -26,7 +26,9 @@ Scratch Team
 - November 4, 2026
 
 # Latest Memes for this moment:
+<img width="1364" height="764" alt="image" src="https://github.com/user-attachments/assets/e01ede73-f0a4-4095-8bb7-9c443c756cb2" />
 
 
-<img width="800" height="450" alt="ZcjBmmEiUTosxbG-800x450-noPad" src="https://github.com/user-attachments/assets/83b8e88d-ced3-4f1f-b349-2da2d2c17df0" />
+
+(I got sent to the Wayback Machine like 2 weeks is 20 years.)
 
