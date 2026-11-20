@@ -26,7 +26,9 @@ Scratch Team
 - November 4, 2026
 
 # Latest Memes for this moment:
-<img width="597" height="139" alt="image" src="https://github.com/user-attachments/assets/4f9d59c5-8b9b-4d93-8712-2d34b38e0251" />
+<img width="1350" height="714" alt="image" src="https://github.com/user-attachments/assets/4ca14467-a40b-4ece-a9f4-a9fa02d0910e" />
 
 
-(she's coping hard)
+
+
+(THATS PRETTY CURSED)
